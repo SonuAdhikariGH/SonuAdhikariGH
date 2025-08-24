@@ -1,4 +1,4 @@
-# 💫 Hi 👋, Sonu Adhikari
+# 💫 Hi 👋, I'm Sonu Adhikari
 ** Frontend Developer | Graphics Designer
 
 Email Me 👉 ✉️ **sonuadhikarionly@gmail.com** For Collaboration/Project or Anything Else. 
